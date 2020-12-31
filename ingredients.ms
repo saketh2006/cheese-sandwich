@@ -1,0 +1,1 @@
+onions, tomato , capsicum , cheese , salt , chilli , potato ,  bread 
